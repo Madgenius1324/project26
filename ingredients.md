@@ -19,3 +19,5 @@ ingredients
 1/3 cup sliced green scallions
 
 salt and pepper to taste
+
+10/10 would eat again
